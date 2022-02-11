@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @SrinivasanRajatheEngineer
+- 👋 Hi, I’m @Srinivasan Rajagopalan (The code Genie!!!)
 - 
 
 
-“Study hard what interests you the most in the most undisciplined, irreverent and original manner possible.”
-
-― Richard Feynmann
+“The real student is studying, learning, inquiring, exploring, not just until he is twenty or twenty-five, but throughout life.”
+— JK
 
